@@ -1,2 +1,2 @@
-# to-be-human
-Repository for the code of my blog
+# To Be Human - Blog
+Repository for the code of my blog. 
