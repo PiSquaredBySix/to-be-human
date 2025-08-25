@@ -12,4 +12,4 @@ Happy Diwali
 
 ******
 ### Note
-This is one of the first poems I have ever written. Looking back on it, I realize that like much of my poems up until recently (I hope), the choice of my words was a little bland. Nonetheless, the poem must've meant something to the past me, so here it is.
+This is one of the first poems I have ever written. Looking back on it, I realize that like much of my poems up until recently (I hope), the choice of my words was a little bland. Nonetheless, when my eyes fell upon this after many years, I was impressed with the idea. So I decided to keep it, even if the delivery isn't great.
