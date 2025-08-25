@@ -1,3 +1,0 @@
-What exactly is love? Is it the feeling I experience when I spot someone in the corridor who I think is pretty? Is it the joy I get when I see my pet dog running down the stairs to greet me when I get back home from a long day of coaching? Is it the surreal satisfaction I get in solving a difficult and elegant math problem. Or is it just the current of complex chemical and biological species in our blood stream known as hormones after whose withdrawal we are reminded of how meaningless our lives are?  
-
-Throughout the entire history of our peculiar species, 'love' has time and again emerged to be the greatest motivator for our kind. From the times when an entire war was fought over a women who someone loved (Trojan wa
