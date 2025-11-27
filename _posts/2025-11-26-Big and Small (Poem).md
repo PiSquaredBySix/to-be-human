@@ -9,7 +9,7 @@ And I? I am just a little brown speck on a floating blue rock.
 Who am I to stand before them and dictate how they should walk and talk?  
 
 I laughed at our existence standing there before their celestial might,  
-What weight indeed have our theories of wrong and right?  
+What weight have our theories of wrong and right?  
 That our abstract philosophical ideas could ever capture them seems a faint possibility,  
 To think that our silly little stories have any true meaning, isn’t it vanity?  
 
