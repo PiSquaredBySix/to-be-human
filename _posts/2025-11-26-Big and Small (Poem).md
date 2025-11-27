@@ -9,11 +9,11 @@ And I? I am just a little brown speck on a floating blue rock.
 Who am I to stand before them and dictate how they should walk and talk?  
 
 I laughed at our existence standing there before their celestial might,  
-What weight indeed hold our theories of wrong and right?  
+What weight indeed have our theories of wrong and right?  
 That our abstract philosophical ideas could ever capture them seems a faint possibility,  
 To think that our silly little stories have any true meaning, isn’t it vanity?  
 
-What weight indeed hold our theories of wrong and right?  
+What weight indeed have our theories of wrong and right?  
 We can’t even seem to agree on a single matter without a fight.  
 I laughed as I thought about all the chaos in this world, pandemonium epitome.    
 We are monkeys damn it;  
