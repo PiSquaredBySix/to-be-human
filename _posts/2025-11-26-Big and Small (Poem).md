@@ -26,7 +26,7 @@ Questioning all ideas of should,
 To have thought we ever could.  
 When I saw a plane go by.  
 
-The stars watched its progress as it glided through the silent black space.  
+The stars watched its progress as it glided through silent black space.  
 As I stood there in the wind lost in wonder before the brilliant blue sky,  
 A thought came fluttering to me  
 
