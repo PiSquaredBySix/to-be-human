@@ -92,7 +92,7 @@ Bad things will keep happening. Terrible things will keep happening. Mistakes wi
 
 My chess coach had once kept the following quote as his status on WhatsApp, “Who are you when no one’s watching.” The large majority of the people cannot sit alone by themselves. Some of the times it is because the silence brings back flashes of a traumatic past or the fears associated with them; some of the times it is because they have given up that anything useful could ever come out of their thoughts. In the latter case, they just need to be surrounded by people (and addictions) all the time, because they never were living life to do something beautiful—to create something that transcends you; they were never living life for themselves. It just makes me really sad to see fellow humans who have so much potential, who can do incredible things, can solve incredible problems, can help decrease sorrow by incredible amounts, just waste their life away.   
 
-In the former case in the second sentence of the above paragraph—  
+In the former case in the third sentence of the above paragraph—  
 
 I know that you’re in so much pain  
 I know that it feels like there’s no way out  
